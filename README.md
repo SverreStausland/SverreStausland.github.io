@@ -1,1 +1,1 @@
-# SverreStausland.github.io
+# Sverre Stausland Johnsen - Professor of Scandinavian Linguistics
