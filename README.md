@@ -1,1 +1,1 @@
-# Sverre Stausland Johnsen - Professor of Scandinavian Linguistics
+Everything here is under construction
